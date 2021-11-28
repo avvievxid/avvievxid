@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @avvievxid
+- 👀 I’m interested in new friends <3
+- 🌱 I’m currently learning art/therapy
+- 💞️ I’m looking to collaborate on art
+- 📫 How to reach me add my discord vxid#8971
